@@ -1,4 +1,6 @@
 defaults:
   -
+  scope:
+    path: ""
   values:
     theme: jekyll-theme-leap-day
