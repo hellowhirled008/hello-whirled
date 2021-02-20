@@ -1,13 +1,13 @@
 # Welcome to the official Hello Whirled website! Hello Whirled is the (usually)-one-man musical project of Benjamin Spizuco. Hi. I'm Ben. I've never built a website before. I don't know what I'm doing.
 
-[NEWS](hellowhirled.org/news)
+[NEWS](/news)
 
-[LISTEN](hellowhirled.org/listen)
+[LISTEN](/listen)
 
-[VIDEOS](hellowhirled.org/videos)
+[VIDEOS](/videos)
 
-[LIVE](hellowhirled.org/live)
+[LIVE](/live)
 
-[FUN](hellowhirled.org/fun)
+[FUN](/fun)
 
-[BEN](hellowhirled.org/ben)
+[BEN](/ben)
