@@ -1,5 +1,14 @@
 news goes here
 
+FEBRUARY 25, 2021 - 6:50 PM
+
+As of right now, there are 5 completed No Victories EPs, with a 6th in the works.
+This marks the halfway point of the preliminary No Victories process. After 10 EPs are recorded, I will take my favorite tracks and re-mix them to be proper for the album.
+
+The side project is called Belted Kingfisher. The album will be out in March.
+
+The 2nd Damp Socks Ensemble EP will be out in April, maybe earlier. It will feature new guests that weren't on the first EP. I'm sad it couldn't become an album but them's the brakes.
+
 FEBRUARY 20, 2021 - 12:02 AM
 
 As of right now, there are 4 completed No Victories EPs, with a 5th in the works.
