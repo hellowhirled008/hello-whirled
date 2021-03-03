@@ -1,5 +1,11 @@
 news goes here
 
+MARCH 3, 2021 - 10:06 AM
+
+As of right now, there are 6 completed No Victories EPs. There is now an hour of recorded music going into the project.
+
+No other news to report.
+
 FEBRUARY 25, 2021 - 6:50 PM
 
 As of right now, there are 5 completed No Victories EPs, with a 6th in the works.
