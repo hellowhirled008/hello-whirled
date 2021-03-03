@@ -1,11 +1,9 @@
-[NEWS](/news)
+[NEWS](/news) A live blog that posts updates on current Hello Whirled projects.
 
-[LISTEN](/listen)
+[LINKS](/LINKS) A page of links for every place to listen to Hello Whirled, as well as some other important points of interest.
 
-[VIDEOS](/videos)
+[LIVE](/live) Documentation of every Hello Whirled live performance.
 
-[LIVE](/live)
+[FUN](/fun) Just some extra stuff.
 
-[FUN](/fun)
-
-[BEN](/ben)
+[BEN](/ben) Effectively a resume, or something.
