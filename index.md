@@ -3,5 +3,3 @@
 [LINKS](/links) A page of links for every place to listen to Hello Whirled, as well as some other important points of interest.
 
 [FUN](/fun) Just some extra stuff.
-
-[BEN](/ben) Effectively a resume, or something.
