@@ -1,4 +1,8 @@
-news goes here
+MARCH 23, 2021 - 2:37 PM
+
+Been a while huh. I'm planning on officially announcing the website today. All 8 No Victories EPs are done. Of the 35 songs recorded, 15 were selected to be re-mixed for the album. My plan is to start mixing on April 1 so I can spend the rest of March finishing up the Damp Socks Ensemble so I can call it done.
+
+I included 7 non-album-phase tracks on the No Victories "Rough Mixes" page, as well as on the Google Form I made for it. The songs are marked as "bonus tracks" but if 10 people think a bonus track is worth salvaging, I should at least look into it if it's proven to be a hit.
 
 MARCH 12, 2021 - 1:59 PM
 
