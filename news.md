@@ -1,3 +1,9 @@
+APRIL 9, 2021 - 10:46 AM
+
+A lot has happened in the last few weeks. Six songs have been completed for No Victories. One song ("No One I Want") was axed, and has been replaced with one of the bonus tracks ("Chariot") as well as a HW song from 2020 that never got the credit it deserved ("Easily Entertained").
+
+In related news, the first single "It's Just You" will be released on streaming platforms (and YouTube) on April 14! So that's cool.
+
 MARCH 23, 2021 - 2:37 PM
 
 Been a while huh. I'm planning on officially announcing the website today. All 8 No Victories EPs are done. Of the 35 songs recorded, 15 were selected to be re-mixed for the album. My plan is to start mixing on April 1 so I can spend the rest of March finishing up the Damp Socks Ensemble so I can call it done.
