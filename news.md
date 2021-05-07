@@ -1,3 +1,7 @@
+MAY 7, 2021 - 10:55 AM
+
+Album's done. It comes out in a week. Cheers.
+
 APRIL 9, 2021 - 10:46 AM
 
 A lot has happened in the last few weeks. Six songs have been completed for No Victories. One song ("No One I Want") was axed, and has been replaced with one of the bonus tracks ("Chariot") as well as a HW song from 2020 that never got the credit it deserved ("Easily Entertained").
