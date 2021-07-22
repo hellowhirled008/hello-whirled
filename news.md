@@ -1,3 +1,7 @@
+JULY 22, 2021 - 2:01 AM
+
+Well this site was kind of a bust, huh. I should probably save up some more money to justify getting Squarespace or something. Anyway, I have a new album coming out in 8 days. https://hellowhirled.bandcamp.com/album/history-worth-repeating
+
 MAY 7, 2021 - 10:55 AM
 
 Album's done. It comes out in a week. Cheers.
